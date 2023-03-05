@@ -124,3 +124,8 @@
 - Naruto: Shippuuden - Sunny Side Battle - OVA
 - Naruto Spin-Off: Rock Lee & His Ninja Pals (Total 51 Episodes)
 - The Day Naruto Became Hokage - OVA
+
+
+----
+<p align="center">
+𝐂𝐨𝐩𝐲𝐫𝐢𝐠𝐡𝐭 © 𝟐𝟎𝟐𝟑 𝐌𝐀𝐘𝐔𝐑 𝐒𝐀𝐊𝐔𝐋𝐄
